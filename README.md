@@ -2,4 +2,4 @@
 - Tenho bastante interesse na área de programaçao 💞️ 
 - ainda estou aprendendo como fucnciona 🌱
 - tenho bastante foco e atençao quando o assunto e programaçao 📫
-- tenho meu hobby que e assitir/ler animes e mangas 💞️ 
+- tenho meu hobby que e assistir/ler animes e mangas 💞️ 
