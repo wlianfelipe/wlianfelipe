@@ -1,5 +1,5 @@
 - Olá me chamo wilian 👋
 - Tenho bastante interesse na área de programaçao 💞️ 
 - ainda estou aprendendo como fucnciona 🌱
-- tenho bastante foco e atençao quando o assuno e programaçao 📫
+- tenho bastante foco e atençao quando o assunto e programaçao 📫
 - tenho meu hobby que e assitir/ler animes e mangas 💞️ 
